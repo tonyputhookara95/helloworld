@@ -9,3 +9,5 @@ Turns to me and he says “Why so serious?” Comes at me with the knife,”Why 
 “Let’s put a smile on that face!” And….. Why so serious? 
 
 Wait for the next dialogue 
+
+If you are good at something, never do it for free.
